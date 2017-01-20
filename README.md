@@ -27,3 +27,4 @@ In men's lacrosse, when the whistle blows they are still allowed to move around.
 In women's lacrosse, when the whistle is blown you are not allowed to move.
 If you move when the whistle is blown, you will get penalized and the other team might get the ball if you don't listen to the ref.
 Men and women will always have different rules.
+Soon women's lacrosse will be able to wear helments just like the men and soon will be able to hit with our sticks.
