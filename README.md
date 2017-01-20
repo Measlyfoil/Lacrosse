@@ -12,3 +12,4 @@ Pro Football Hall of Famer Jim Brown of the Cleveland Browns played lacrosse for
 Duke University beat Syracuse to win the 2013 NCAA Division 1 Men's Lacrosse Championship.
 Rules and Reulations of Lacrosse change for both men and women.
 The field is 110 yards long by 60 yards wide.
+Each team in the men's lacrosse has ten players, three attack men, three mid-fielders, three defensemen and a goalie.
