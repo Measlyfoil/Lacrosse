@@ -21,3 +21,4 @@ In men's lacrosse, midfielders can cover the full field.
 Defensemen and attack men must stay on their respective sides of the midfield line so that there are no more than six offensive players (not including the goalie) on the defending side.
 A defensemen can cross the midfield line into the offensive side while carrying the ball as long as a midfielder stays behind the midfield line.
 In men's lacrosse, you are allowed to hit other people with your stick.
+In women's lacrosse, if you hit someone you would get a yellow card.
