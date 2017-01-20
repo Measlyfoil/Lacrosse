@@ -17,3 +17,4 @@ Women's lacrosse rules and field dimensions are different from men's.
 Each team has twelve players, usually four attack, three midfielders, four defense and a goalie.
 In men's lacrosse, midfielders can cover the full field.
 Defensemen and attack men must stay on their respective sides of the midfield line so that there are no more than six offensive players (not including the goalie) on the defending side.
+A defensemen can cross the midfield line into the offensive side while carrying the ball as long as a midfielder stays behind the midfield line.
