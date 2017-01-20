@@ -15,3 +15,4 @@ The field is 110 yards long by 60 yards wide.
 Each team in the men's lacrosse has ten players, three attack men, three mid-fielders, three defensemen and a goalie.
 Women's lacrosse rules and field dimensions are different from men's.
 Each team has twelve players, usually four attack, three midfielders, four defense and a goalie.
+In men's lacrosse, midfielders can cover the full field.
