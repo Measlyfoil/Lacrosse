@@ -22,3 +22,4 @@ Defensemen and attack men must stay on their respective sides of the midfield li
 A defensemen can cross the midfield line into the offensive side while carrying the ball as long as a midfielder stays behind the midfield line.
 In men's lacrosse, you are allowed to hit other people with your stick.
 In women's lacrosse, if you hit someone you would get a yellow card.
+Women's lacrosse is way different from men's lacrosse.
