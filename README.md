@@ -7,3 +7,4 @@ The traditional aboriginal Canadian version had teams ranging from 100 to 1000 p
 In 1856, the Montreal Lacrosse Club was founded and rules were codified to shorten the game and reduce the number of players to twelve.
 Lacrosse was a summer Olympic sport in 1904 and 1908 with teams from the U.S. (1904 only), Canada and Great Britain.
 Harvard beat Princeton 3-0 in the first college lacrosse tournament held in 1881
+The first NCAA sponsored Men's Lacrosse Championship was held in 1971.
