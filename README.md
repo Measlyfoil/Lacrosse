@@ -11,3 +11,4 @@ The first NCAA sponsored Men's Lacrosse Championship was held in 1971.
 Pro Football Hall of Famer Jim Brown of the Cleveland Browns played lacrosse for Syracuse University, and is also in the National Lacrosse Hall of Fame.
 Duke University beat Syracuse to win the 2013 NCAA Division 1 Men's Lacrosse Championship.
 Rules and Reulations of Lacrosse change for both men and women.
+The field is 110 yards long by 60 yards wide.
